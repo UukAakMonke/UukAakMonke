@@ -1,0 +1,7 @@
+- 👋 Hi, I’m U UK AK AK AKK
+- 👀 I’m interested in U UK A AKK
+- 🌱 I’m currently learning AAAKK AKKK
+- 💞️ I’m looking to collaborate on uk uk
+- 📫 How to reach me UK UK AK AKK AK
+- 😄 Pronouns: UK UK UK UK AKKKK
+- ⚡ Fun fact: monke
